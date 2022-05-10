@@ -15,11 +15,11 @@ print (a)
 
 
 
-gmail_user = 'maraserver877@gmail.com'
-gmail_password = '09007071'
+gmail_user = 'gmail'
+gmail_password = 'pasword'
 
 sent_from = gmail_user
-to = ['haiyanali03218772015@gmail.com']
+to = ['to gmail']
 subject = 'Email For You'
 body =  a
 email_text = """\
